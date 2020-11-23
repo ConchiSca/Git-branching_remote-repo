@@ -13,7 +13,7 @@ INGREDIENTS
  ¼ tsp ground black pepper
  1 tsp ground coriander
  1 tbsp tamari
- Pinch salt
+ Salt to taste!
  ½ lemon/ juice 1 lime
  small bunch fresh coriander
  
