@@ -11,7 +11,7 @@ INGREDIENTS
  ¼ tsp smoked paprika
  ¼ tsp cinnamon
  ¼ tsp ground black pepper
- 1 tsp ground coriander
+ 1 tsp ground coriander - if you like coriander of course!
  1 tbsp curcuma
  Salt to taste!
  ½ lemon/ juice 1 lime
